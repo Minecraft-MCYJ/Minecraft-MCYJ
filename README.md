@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Minecraft-MCYJ
+- 👀 I’m interested in Minecraft and coding
+- 🌱 I’m currently learning Python
+- 📫 How to reach me emmmmmmmmm I don't know
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
